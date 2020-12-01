@@ -7,7 +7,3 @@ test2
  asdxjavsdhsd
 
  Added comments locally.
-
- another one.
- another local change.
- sdahkabdkjabd

@@ -7,7 +7,6 @@ For teams.
 dfvsdf bdfb
 
 asd
-asc
 csdcwc
 
 dsffg

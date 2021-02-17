@@ -7,15 +7,6 @@ For teams.
 dfvsdf bdfb
 
 asd
-
-sachjbsc
-vjy
-ewfe
-sqdwwqd
-sad
-wfdwfd
-wfe
-shs
 asc
 csdcwc
 

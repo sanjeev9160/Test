@@ -6,12 +6,4 @@ For teams.
 
 dfvsdf bdfb
 sdfwf
-asd
-csdcwc
-
-dsffg
-skjsjks
-sdaff
-dew
-sdfffwef
-ccssw
+as

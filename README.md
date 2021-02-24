@@ -6,8 +6,4 @@ For teams.
 
 dfvsdf bdfb
 
-asd
-
-sachjbsc
-sad
-sda
+as
